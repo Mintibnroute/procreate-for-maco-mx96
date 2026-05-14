@@ -1,4 +1,4 @@
-# 
+# Procreate for macOS advanced Plugin: content-aware fill & AI upscaling offers the most advanced Procreate for macOS plugin, with content-aware fill and AI upscaling. Ideal for
 
 
 
